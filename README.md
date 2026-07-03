@@ -12,8 +12,7 @@
 ꒰[ info ](https://t.me/lawluqq)꒱
 ꒰[ music ](https://t.me/MusikMainer)꒱
 ꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱ 
-꒰[my sis](https://github.com/sayonearaIofp)꒱
-  
+
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
 
 <a href="https://ibb.co/6JJ3Zg0x"><img src="https://i.ibb.co/3YYDsBmq/143-20260507235617.png" alt="143-20260507235617" border="0"></a>
